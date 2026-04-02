@@ -1,4 +1,4 @@
-## 👏 Hi, I'm *Abraham *
+## 👏 Hi, I'm *Abraham*
 ##  About Me
 _I like to work on my cars and play video games. I'm majoring in Criminalogy._
 ## ⚒️ Skills
